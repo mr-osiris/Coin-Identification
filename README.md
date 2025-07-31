@@ -1,1 +1,3 @@
 # my-new-pern-app
+
+do you have any thoughts about this repo? if you have any will u note it down and send me...........
