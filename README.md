@@ -1,2 +1,2 @@
 # my-new-pern-app
-# whats su
+# whats s
