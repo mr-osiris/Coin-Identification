@@ -47,8 +47,3 @@ __Banking and Currency Exchange:__ Banks can use this to quickly sort and count 
 
 
 # Dataset link:https://data.mendeley.com/datasets/k49x47v732/1?utm_source=chatgpt.com
-
-
-what am I doing man 
-
-i don't even know whts going in my life I am so confused right fckin hell of situation 😞
