@@ -50,3 +50,5 @@ __Banking and Currency Exchange:__ Banks can use this to quickly sort and count 
 
 
 what am I doing man 
+
+i don't even know whts going in my life I am so confused right fckin hell of situation 😞
